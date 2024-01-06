@@ -1,2 +1,1 @@
-Bye, Masha!
-Pivet, Masha
+Poka, Masha!
